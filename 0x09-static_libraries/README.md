@@ -1,1 +1,1 @@
-My static project.
+My projects are going on well
